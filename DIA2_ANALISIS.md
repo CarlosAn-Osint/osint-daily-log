@@ -21,11 +21,11 @@ Expansión china en África (infraestructura, inversión y presencia de segurida
 - Estados Unidos / UE: contener influencia china, proteger rutas marítimas, explotar oportunidades externas y acceder a minerales críticos (cna.org).
 
 ## Fuentes de información consultadas
-Reuters. URL: https://www.reuters.com/world/chinas-lending-africa-rises-first-time-seven-years-study-shows-2024-08-29/?
-WIRED. URL: https://www.wired.com/story/african-imports-of-chinese-solar-panels-increase/?
-greenfdc.org. URL: https://greenfdc.org/china-belt-and-road-initiative-bri-investment-report-2024/?
-cna.rog. URL: www.cna.org/analyses/2024/10/the-military-and-security-dimensions-of-the-prcs-africa-presence?
-Council of Foreign Relations. URL: www.cfr.org/article/china-africa-march-2025?
+- Reuters. URL: https://www.reuters.com/world/chinas-lending-africa-rises-first-time-seven-years-study-shows-2024-08-29/?
+- WIRED. URL: https://www.wired.com/story/african-imports-of-chinese-solar-panels-increase/?
+- greenfdc.org. URL: https://greenfdc.org/china-belt-and-road-initiative-bri-investment-report-2024/?
+- cna.rog. URL: www.cna.org/analyses/2024/10/the-military-and-security-dimensions-of-the-prcs-africa-presence?
+- Council of Foreign Relations. URL: www.cfr.org/article/china-africa-march-2025?
 
 ## Observaciones preliminares (neutrales)
 - China está involucrándose cada vez más en África. Inversiones monetarias, Joint-Ventures y con beneficios para ambas partes; como al obtener gran parte de los minerales de DRC y construir infraestructura dentro.
