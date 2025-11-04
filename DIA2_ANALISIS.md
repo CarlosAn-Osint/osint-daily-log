@@ -28,6 +28,6 @@ Expansión china en África (infraestructura, inversión y presencia de segurida
 - Council of Foreign Relations. URL: www.cfr.org/article/china-africa-march-2025?
 
 ## Observaciones preliminares (neutrales)
-- China está involucrándose cada vez más en África. Inversiones monetarias, Joint-Ventures y con beneficios para ambas partes; como al obtener gran parte de los minerales de DRC y construir infraestructura dentro.
-- Estados Unidos se posiciona como competidor directo de China, debido a las pre charlas para invertir en el sur de DRC también. 
+- China está involucrándose cada vez más en África. Inversiones monetarias, Joint-Ventures y con beneficios para ambas partes; como al obtener gran parte de los minerales de DRC y construir infraestructura dentro a cambio.
+- Estados Unidos se posiciona como competidor directo de China, debido a las pre charlas para invertir en el sur de DRC.
 - Los sectores y recursos enérgicos, mineros y atómicos son los principales para desarrollar y explotar en este contexto geopolítico.
